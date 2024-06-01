@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RuiwenZ
-- 👀 I’m interested in criical data study
+- 👀 I’m interested in critical data study
 - 🌱 I’m currently learning communication at CUHK
 - 😄 Pronouns: She/her
 
